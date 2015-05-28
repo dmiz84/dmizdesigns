@@ -1,2 +1,0 @@
-# dmizdesigns
-my website
